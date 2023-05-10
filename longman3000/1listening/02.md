@@ -1,0 +1,1 @@
+[Peter Thiel: Going from Zero to One](https://www.youtube.com/watch?v=rFZrL1RiuVI)
