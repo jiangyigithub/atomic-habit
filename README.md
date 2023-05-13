@@ -9,8 +9,13 @@ https://github.com/jiangyigithub/automic-habit/
 3. 读一遍自己录好视频
 4. 生成英文字幕，将视频上传到B站
 
+## troubleshooting
+1. Vocabulary,Phrases and fixed collocations --> learning material
+2. Grammar --> summary
+3. Pronounce -->check video
+
 ## tools
 视频：https://keepv.id/6/
 字幕：https://downsub.com/
 auto AI subtitle: https://www.veed.io/tools/auto-subtitle-generator-online
-https://member.bilibili.com/platform/upload/video/frame?spm_id_from=333.1007.top_bar.upload
+原子习惯-P29-1 :https://member.bilibili.com/platform/upload/video/frame?spm_id_from=333.1007.top_bar.upload
