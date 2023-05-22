@@ -14,6 +14,8 @@ https://github.com/jiangyigithub/automic-habit/
 2. Grammar --> summary
 3. Pronounce -->check video
 
+能力是分级的，单个单词能认识<单词能听懂<阅读能看懂<能流利的读下来
+
 ## tools
 视频：https://keepv.id/6/
 字幕：https://downsub.com/
