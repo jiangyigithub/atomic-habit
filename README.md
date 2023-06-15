@@ -1,4 +1,5 @@
 # automic-habit
+`如何面对不确定性,不下定论，有限资源下多下注，但有优先级`
 https://github.com/jiangyigithub/automic-habit/
 ## principle
 1. 不要追求完美，先让事情进行一下
