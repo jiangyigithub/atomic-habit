@@ -1,4 +1,4 @@
-# automic-habit
+# atomic-habit
 `如何面对不确定性,不下定论，有限资源下多下注，但有优先级`  
 https://github.com/jiangyigithub/automic-habit/
 ## principle
@@ -22,7 +22,7 @@ https://github.com/jiangyigithub/automic-habit/
 总结一下，对于我个人而言，我目前在学习《原子习惯》，我个人期望能提供些老师阅读的纯英文音频或视频，大概想表达的是我期望能提供《原子习惯》这本书的英文有声读书，期待你的回复。
 
 ## tools
-视频：https://keepv.id/6/
-字幕：https://downsub.com/
-auto AI subtitle: https://www.veed.io/tools/auto-subtitle-generator-online
-原子习惯-P29-1 :https://member.bilibili.com/platform/upload/video/frame?spm_id_from=333.1007.top_bar.upload
+视频：https://keepv.id/6/  
+字幕：https://downsub.com/  
+auto AI subtitle: https://www.veed.io/tools/auto-subtitle-generator-online  
+原子习惯-P29-1 :https://member.bilibili.com/platform/upload/video/frame?spm_id_from=333.1007.top_bar.upload  
