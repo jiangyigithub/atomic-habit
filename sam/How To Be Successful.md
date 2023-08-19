@@ -1,5 +1,6 @@
 
 How To Be Successful
+(January 25, 2019 at 5:01 AM)
 
 I’ve observed thousands of founders and thought a lot about what it takes to make a huge amount of money or to create something important. Usually, people start off wanting the former and end up wanting the latter.
 
