@@ -1,5 +1,6 @@
 
 The Merge
+(December 8, 2017 at 12:56 AM)
 
 A popular topic in Silicon Valley is talking about what year humans and machines will merge (or, if not, what year humans will get surpassed by rapidly improving AI or a genetically enhanced species). Most guesses seem to be between 2025 and 2075.
 
