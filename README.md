@@ -4,6 +4,7 @@ https://github.com/jiangyigithub/automic-habit/
 ## principle
 1. 不要追求完美，先让事情进行一下
 2. 少即是多
+3. 短一点，慢一点
 
 ## process
 1. 自己读一遍，找出不会的词汇
