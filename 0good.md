@@ -1,6 +1,6 @@
 `Look around`. Society is filled with highly engineered versions of
-reality that are more attractive than the world our ancestors `evolved`
-in. Stores feature mannequins with exaggerated `hips` and `breasts` to
+`reality` that are more attractive than the world our ancestors `evolved`
+in. Stores feature mannequins with `exaggerated` `hips` and `breasts` to
 sell clothes. Social media delivers more “likes” and praise in a few
 minutes than we could ever get in the office or at home. Online porn
 splices together stimulating scenes at a rate that would be impossible
