@@ -28,3 +28,8 @@ make any habit more enticing. To do this, we must start by
 understanding what a craving is and how it works.
 We begin by examining a biological signature that all habits share—
 the dopamine spike.
+
+---
+In the long history of
+humankind, those who learned to `collaborate` and `improvise` most
+effectively have `prevailed`.
