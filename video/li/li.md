@@ -4,7 +4,7 @@ continue continuous continuously
 success successful successfully
 founded foudation founding
 sustain sustainable
-
+profitable profitability 
 pretty much
 further
 heavily
@@ -22,4 +22,12 @@ business model
 work on
 be capable 
 proud of
+highly convinced that
 
+do have
+wise
+
+half ready
+full ready
+all ready
+already
