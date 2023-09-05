@@ -25,6 +25,7 @@ be capable
 proud of
 highly convinced that
 take place
+heating up
 
 do have
 wise
