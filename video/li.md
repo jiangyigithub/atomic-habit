@@ -8,6 +8,7 @@ profitable profitability
 pretty much
 further
 heavily
+reputation respect
 
 however
 therefore
@@ -23,6 +24,7 @@ work on
 be capable 
 proud of
 highly convinced that
+take place
 
 do have
 wise
