@@ -13,7 +13,7 @@ special revenues
 our
 interally
 I said
-finance
+finance financal finalcally
 revenue share
 compared to target
 impressing turnover
