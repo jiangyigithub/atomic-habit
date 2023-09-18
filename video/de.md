@@ -29,5 +29,6 @@ serial `series` serial busniess
 `growth` goals
 `ratio`
 free cash flow
+`secure` v.
 `acceptable`
 
