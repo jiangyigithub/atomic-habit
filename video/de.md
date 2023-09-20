@@ -20,7 +20,7 @@ impress impressing turnover
 `quiet`
 portfolio
 
-## 3
+## 4
 `address`
 `loss` losses
 minus
@@ -31,4 +31,23 @@ serial `series` serial busniess
 free cash flow
 `secure` v.
 `acceptable`
+
+
+## 5
+fourth first
+fourth quarter
+keep within
+wherever
+without harming
+a lot of
+poping in
+the second half of the year
+especially
+in fouth quarter
+due to
+do the utmost
+desperatly
+no matter which currency
+expecting
+material cost
 
