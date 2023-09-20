@@ -43,4 +43,9 @@ password:https://github.com/settings/tokens/
 视频：https://keepv.id/6/  
 字幕：https://downsub.com/  
 auto AI subtitle: https://www.veed.io/tools/auto-subtitle-generator-online  
-原子习惯-P29-1 :https://member.bilibili.com/platform/upload/video/frame?spm_id_from=333.1007.top_bar.upload  
+原子习惯-P29-1 :https://member.bilibili.com/platform/upload/video/frame?spm_id_from=333.1007.top_bar.upload 
+
+英语的三大基础，是词汇语法和发音，要把词汇学好，可以通过阅读，先列下你觉得有意义的事情
+1. 3000词汇
+2. 词汇的英英解释
+3. 时间都在阅读，阅读和听力和口语没有关系
