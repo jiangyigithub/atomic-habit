@@ -51,3 +51,11 @@ no matter which currency
 expecting
 material cost
 
+## 
+in the year to data
+forcast  = predict
+wonder
+spend on
+better than planned
+
+
