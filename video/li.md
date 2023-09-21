@@ -2,7 +2,7 @@
 consistent consistency
 continue continuous continuously
 success successful successfully
-founded foudation founding
+founded foundation founding
 sustain sustainable
 profitable profitability 
 pretty much
