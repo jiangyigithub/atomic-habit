@@ -1644,6 +1644,7 @@ wipe
 wire
 wise
 witness
+wonder
 wool
 word
 worth
