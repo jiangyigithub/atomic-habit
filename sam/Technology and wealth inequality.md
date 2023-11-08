@@ -1,0 +1,1 @@
+https://blog.samaltman.com/technology-and-wealth-inequality
