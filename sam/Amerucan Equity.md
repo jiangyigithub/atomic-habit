@@ -1,3 +1,5 @@
+股份有限公司是人类历史上最重要的发明之一。它使我们能够让很多人为共同的目标而努力，完成任何个人无法完成的事情。
+
 American Equity
 
 I'd like feedback on the following idea.

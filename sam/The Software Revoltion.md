@@ -1,3 +1,8 @@
+huge-scale destruction of jobs, and concentration of huge power
+
+Technology provides leverage on ability and luck, and in the process concentrates wealth and drives inequality.
+
+
 The Software Revolution
 软件革命
 
