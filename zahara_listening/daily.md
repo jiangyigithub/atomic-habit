@@ -1,0 +1,55 @@
+get anything line up with
+burnt out
+take a break from
+be in order
+
+## 2/10
+https://www.youtube.com/watch?v=ivSwK2ukXh8
+
+ so you want to start grilling me now or should we wait till after dinner
+
+ I thought I'd let you at least enjoy the Bread Basket first
+
+ it's okay go right ahead
+
+ your pay is terrible
+
+ you don't get to write anything
+
+ I'm just trying to understand why someone who got accepted to Stanford law turns it down to be a journalistic
+
+ being morand's assistant opens a lot of doors
+
+ I swear this is my break
+
+ ## 2/04
+
+ ### scenario one
+  But then he said he felt like he put himself out there
+
+  I didn't reciprocate
+
+  I deserve this
+
+  I didn't realize what I had until I lost him
+
+  you're just gonna have to put yourself out there if you want him back
+
+### scenario two
+
+what's going on
+
+how did you end up working with Antoine
+
+ I got to spend a lot of time with him my going away party that you missed
+
+ so why keep it all from me?
+
+ I was picking up the hints that you and I weren't on the same page
+
+ no I'm I'm really sorry you felt that way
+
+ ### 词组重点
+
+ 拓展例句
+

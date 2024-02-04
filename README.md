@@ -6,6 +6,11 @@ https://github.com/jiangyigithub/automic-habit/
 2. 少即是多
 3. 短一点，慢一点
 
+## 三位老师
+1. 英语学习方法论 - eva
+2. 场景听力 - zahara
+3. 原著阅读 - jan
+
 ## process
 1. 自己读一遍，找出不会的词汇
 2. 将不会的单词在longman字典上找出，通过notebook记录好生成图片
