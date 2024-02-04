@@ -6,10 +6,11 @@ https://github.com/jiangyigithub/automic-habit/
 2. 少即是多
 3. 短一点，慢一点
 
-## 三位老师
+## 四位老师
 1. 英语学习方法论 - eva
 2. 场景听力 - zahara
 3. 原著阅读 - jan
+4. 战略思考 - sam
 
 ## process
 1. 自己读一遍，找出不会的词汇
