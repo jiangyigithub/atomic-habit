@@ -28,12 +28,13 @@ https://www.youtube.com/watch?v=ivSwK2ukXh8
   But then he said he felt like he put himself out there
 
   I didn't reciprocate
+        but you didn't
 
   I deserve this
 
   I didn't realize what I had until I lost him
 
-  you're just gonna have to put yourself out there if you want him back
+        you're just gonna have to put yourself out there if you want him back
 
 ### scenario two
 
@@ -52,4 +53,18 @@ how did you end up working with Antoine
  ### 词组重点
 
  拓展例句
+
+ ## 0206
+ https://www.youtube.com/watch?v=ivSwK2ukXh8
+ ### scenario one
+ you gonna start grilling me now or should we wait till after dinner?
+ i though I'd let you at least enjoy the breakfast 
+ No it's OK,Go right ahead.
+
+ ### scenario two
+ your pay is terrible
+ you don't get to write anything.
+ I'm just trying to understand why someone who got accepcted standford law turn it down to be a jourlist
+ Being Miranda's assistant opens a lot of doors.0
+ Dad,i swear,this is my break.
 
