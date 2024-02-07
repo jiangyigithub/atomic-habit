@@ -75,3 +75,8 @@ how did you end up working with Antoine
  Being Miranda's assistant opens a lot of doors.0
  Dad,i swear,this is my break.
 
+ ## 02/07
+ ### deepstream
+ https://www.youtube.com/watch?v=MoZ3VqOIUuI
+
+
