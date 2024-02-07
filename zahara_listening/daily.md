@@ -76,7 +76,23 @@ how did you end up working with Antoine
  Dad,i swear,this is my break.
 
  ## 02/07
- ### deepstream
- https://www.youtube.com/watch?v=MoZ3VqOIUuI
+https://www.youtube.com/watch?v=MoZ3VqOIUuI
+### scenario one
+how do you know about this place?
+
+i live right down there.
+
+every time i pass by
+
+it's packed.
+
+### scenario one
+so i just found out i have this horrible nickname.
+
+you mean G.G?
+
+how do you know about that?
+
+I helped lvy come up with it?
 
 
