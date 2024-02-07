@@ -8,6 +8,8 @@ Think i'm gonna take a break from the cello.
 I didn't mean a long break.I wasn't suggesting that.
 i think a break is in order.
 
+### 自己在生活和工作中怎么样
+got anything lined up with
 ## 2/10
 https://www.youtube.com/watch?v=ivSwK2ukXh8
 
