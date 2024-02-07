@@ -1,7 +1,12 @@
-get anything line up with
-burnt out
-take a break from
-be in order
+## 02/07
+https://www.youtube.com/watch?v=50XJnDbevyA&list=RDCMUCTABKswbDxx36elouOdQhlw&index=5
+
+you got anything lined up with your quartet for the summer?
+Think I may be a little burnt on the cello.
+Could be you just need a break.
+Think i'm gonna take a break from the cello.
+I didn't mean a long break.I wasn't suggesting that.
+i think a break is in order.
 
 ## 2/10
 https://www.youtube.com/watch?v=ivSwK2ukXh8
@@ -18,7 +23,7 @@ https://www.youtube.com/watch?v=ivSwK2ukXh8
 
  I'm just trying to understand why someone who got accepted to Stanford law turns it down to be a journalistic
 
- being morand's assistant opens a lot of doors
+ being Morand's assistant opens a lot of doors
 
  I swear this is my break
 
