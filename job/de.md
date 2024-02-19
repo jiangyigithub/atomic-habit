@@ -11,9 +11,9 @@ growth - growth engine
 
 ## 2
 our
-intenal intenally
+internal internally
 I said
-`finance` financal finalcally
+`finance` financial financially
 revenue share
 compared to target
 impress impressing turnover
@@ -40,20 +40,20 @@ keep within
 wherever
 without harming
 a lot of
-poping in
+popping in
 the second half of the year
 especially
-in fouth quarter
+in fourth quarter
 due to
 do the utmost
-desperatly
+desperately
 no matter which currency
 expecting
 material cost
 
 ## 
 in the year to data
-forcast  = predict
+forecast  = predict
 wonder
 spend on
 better than planned
