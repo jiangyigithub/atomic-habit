@@ -34,7 +34,6 @@ I really admire the way she brings up those kids all on her own.
 **agree**
 if she felt he was right.she would agree with him.
 
-## be drived emotion 
 **annoy**
 `/əˈn/`
 It really annoys me when I see people dropping litter.
