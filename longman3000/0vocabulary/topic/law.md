@@ -42,4 +42,4 @@ He sent a letter to the council to complain about the noise.
 
 **criminal**
 `/ˈkrɪ/`
-Experts cannot agree on the causes of cirminal behaviour.
+Experts cannot agree on the causes of criminal behavior.

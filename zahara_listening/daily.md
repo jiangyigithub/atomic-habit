@@ -95,4 +95,15 @@ how do you know about that?
 
 I helped lvy come up with it?
 
+## 02/19
+https://www.bilibili.com/video/BV1tM411H7EJ/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+I feel like Alice through the looking Glass.
+it' like up is down.
+Maybe I'm just not cut out for this city.
+you know, I thought it was gonna be adventure.
+
+             And It is.
+             Maybe an even better on that you imagined.
+I just never pictured myself here alone.
+
 
