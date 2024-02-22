@@ -105,5 +105,23 @@ you know, I thought it was gonna be adventure.
              And It is.
              Maybe an even better on that you imagined.
 I just never pictured myself here alone.
+## 02/22
+### material
+https://www.youtube.com/watch?v=-uzEvk7p5oQ&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_lfV8
+Hey, you've got to try this cheesecake.
+        you know,I'm not that much of a sweet tooth.
+        wow,my god,it's so creamy!
+        Oh,my god!that is the best cheesecake I've ever had!
+        where did you get this?
+It was at the front door when I got home.
+somebody sent it to us.
+
+### 短语和词组搭配
+1. have got to == have to
+2. sweet tooth
+3. have ever 
+4. send sth. to sb.
+5.  that much of
+
 
 
