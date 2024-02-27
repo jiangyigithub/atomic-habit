@@ -15,3 +15,5 @@ restaurant
 `/ɔː/`
 draw
 straw
+awkward
+awesome
