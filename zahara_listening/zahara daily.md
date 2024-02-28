@@ -146,7 +146,7 @@ be down to
 hang (out)
 quite the
 social calendar
-rad
+it's rad
 don't get me wrong
 i am here for ...
 ... is somehing
