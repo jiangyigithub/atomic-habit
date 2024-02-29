@@ -11,28 +11,17 @@ i think a break is in order.
 ### 自己在生活和工作中怎么样去应用
 got anything lined up with
 
-## 2/10
-https://www.youtube.com/watch?v=ivSwK2ukXh8
+## 02/02
+https://www.youtube.com/watch?v=RtVeNc21A54
+mood swings
+give me whiplash
+it'd be better if
+stay away from
+let's say
+for argument sake
 
- so you want to start grilling me now or should we wait till after dinner
-
- I thought I'd let you at least enjoy the Bread Basket first
-
- it's okay go right ahead
-
- your pay is terrible
-
- you don't get to write anything
-
- I'm just trying to understand why someone who got accepted to Stanford law turns it down to be a journalistic
-
- being Morand's assistant opens a lot of doors
-
- I swear this is my break
-
- ## 2/04
-
- ### scenario one
+## 2/04
+### scenario one
   But then he said he felt like he put himself out there
 
   I didn't reciprocate
@@ -125,15 +114,6 @@ somebody sent it to us.
 5.  that much of
 
 https://www.youtube.com/watch?v=OHrDo0hZS70
-
-## 12/29
-https://www.youtube.com/watch?v=RtVeNc21A54
-mood swings
-give me whiplash
-it'd be better if
-stay away from
-let's say
-for argument sake
 
 ## 2/27
 https://www.bilibili.com/video/BV1R8411S7FP/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
