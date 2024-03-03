@@ -132,12 +132,18 @@ i am here for ...
 ... is somehing
 
 ## 2/28
+https://www.bilibili.com/video/BV1514y197iL/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 hey hony,how it go?
 good next week
 
-well so intens
+well so intense
 i have no idea
 bearly hold together
 everyday
+
+## 3/1
+https://www.bilibili.com/video/BV1nu411G78e/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+quit drinking back
+school run
 
 
