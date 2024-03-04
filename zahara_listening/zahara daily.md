@@ -133,12 +133,12 @@ i am here for ...
 
 ## 2/28
 https://www.bilibili.com/video/BV1514y197iL/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
-hey hony,how it go?
+hey honey,how it go?
 good next week
 
 well so intense
 i have no idea
-bearly hold together
+barely hold together
 everyday
 
 ## 3/1
