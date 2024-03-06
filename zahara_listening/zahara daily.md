@@ -146,4 +146,10 @@ https://www.bilibili.com/video/BV1nu411G78e/?spm_id_from=333.788&vd_source=0d7a6
 quit drinking back
 school run
 
-
+https://www.youtube.com/watch?v=i1Vn8q3KzrM&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_lfV8&index=2
+i was gonna say
+if you ask me
+know the drill
+happen
+perfer
+better off
