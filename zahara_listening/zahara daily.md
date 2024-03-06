@@ -1,4 +1,5 @@
-## 02/07
+## 02/07【最强保姆级】和美国小孩最真实的对话，你能听懂多少？
+https://www.bilibili.com/video/BV1k64y1A7tt/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 https://www.youtube.com/watch?v=50XJnDbevyA&list=RDCMUCTABKswbDxx36elouOdQhlw&index=5
 
 you got anything lined up with your quartet for the summer?
@@ -11,7 +12,8 @@ i think a break is in order.
 ### 自己在生活和工作中怎么样去应用
 got anything lined up with
 
-## 02/02
+## 02/02【最牛保姆级】美国人稍快的最真实语速，你能听懂多少
+https://www.bilibili.com/video/BV1Ma4y1673W/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 https://www.youtube.com/watch?v=RtVeNc21A54
 mood swings
 give me whiplash
@@ -20,7 +22,8 @@ stay away from
 let's say
 for argument sake
 
-## 2/04
+## 2/04 【艾米莉在巴黎】这样轻松看美剧，你的听力会好到很哇塞！ (Emily in Paris)
+https://www.bilibili.com/video/BV1Bu4m1N7Uz/?spm_id_from=333.999.0.0&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 ### scenario one
   But then he said he felt like he put himself out there
 
@@ -51,7 +54,8 @@ how did you end up working with Antoine
 
  拓展例句
 
- ## 0206
+ ## 0206【超级保姆级听力】两个美国人最日常的交流，你能听懂多少
+ https://www.bilibili.com/video/BV1sN4y1S7pD/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
  https://www.youtube.com/watch?v=ivSwK2ukXh8
  ### scenario one
  you gonna start grilling me now or should we wait till after dinner?
@@ -65,8 +69,10 @@ how did you end up working with Antoine
  Being Miranda's assistant opens a lot of doors.0
  Dad,i swear,this is my break.
 
- ## 02/07
+ ## 02/07 【终极听力攻略】两个美国女生最日常的交流，你能听懂多少？（超多场景）
+https://www.bilibili.com/video/BV1XN411771g/?spm_id_from=333.999.0.0&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 https://www.youtube.com/watch?v=MoZ3VqOIUuI
+
 ### scenario one
 how do you know about this place?
 
@@ -85,7 +91,7 @@ how do you know about that?
 
 I helped lvy come up with it?
 
-## 02/19
+## 02/19【保姆级听力训练】两个美国女生真实聊天的语速，你能听懂多少？
 https://www.bilibili.com/video/BV1tM411H7EJ/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 I feel like Alice through the looking Glass.
 it' like up is down.
@@ -95,8 +101,11 @@ you know, I thought it was gonna be adventure.
              And It is.
              Maybe an even better on that you imagined.
 I just never pictured myself here alone.
-## 02/22
+
+## 02/22【保姆级听力训练】美国人正常聊天的语速，你能听懂多少？
+
 ### material
+https://www.bilibili.com/video/BV1HY411C79L/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 https://www.youtube.com/watch?v=-uzEvk7p5oQ&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_lfV8
 Hey, you've got to try this cheesecake.
         you know,I'm not that much of a sweet tooth.
@@ -115,7 +124,7 @@ somebody sent it to us.
 
 https://www.youtube.com/watch?v=OHrDo0hZS70
 
-## 2/27
+## 2/27【最强保姆级听力】两个美国朋友的闲聊，你能听懂多少
 https://www.bilibili.com/video/BV1R8411S7FP/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 i'm really glad
 also quite changes here
@@ -131,7 +140,7 @@ don't get me wrong
 i am here for ...
 ... is somehing
 
-## 2/28
+## 2/28【超强保姆级听力】两个美国人用最地道的美语聊天，你能听懂多少
 https://www.bilibili.com/video/BV1514y197iL/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 hey honey,how it go?
 good next week
@@ -141,12 +150,12 @@ i have no idea
 barely hold together
 everyday
 
-## 3/1
+## 3/1【最强保姆级听力】美国女星最真实的聊天，你能听懂多少？
 https://www.bilibili.com/video/BV1nu411G78e/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 quit drinking back
 school run
 
-## 3/5
+## 3/5【最牛保姆级听力】美国人在工作中最真实的聊天，你能听懂多少？
 https://www.bilibili.com/video/BV1CN411b72h/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 https://www.youtube.com/watch?v=i1Vn8q3KzrM&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_lfV8&index=2
 i was gonna say
