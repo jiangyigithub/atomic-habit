@@ -165,4 +165,20 @@ happen
 perfer
 better off
 
+## 3/6【保姆级听力】两个美国女生有了争执的对话，你能听懂多少？
+###
+https://www.bilibili.com/video/BV16N4y1R7XL/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+you barely two words a week
+in case forgot i bring you here
+so you would  anything familar for me
+but that give me anything ,maybe for minute
+i know keep me that way
+
+### answer
+1. you know, you 've barely said two words to me all week.
+2. in case you forgot, i brought you here.
+3. so you wouldn't have any of this.if it weren't for me.
+4. but you didn't really give me anything.
+5. maybe for a minute. i was a little insecure.
+6. i know you did what you could to keep that way.
 
