@@ -182,3 +182,15 @@ i know keep me that way
 5. maybe for a minute. i was a little insecure.
 6. i know you did what you could to keep that way.
 
+
+## 3/8 【超强保姆级精听】美国人工作中稍快语速的对话，你能听懂多少？
+https://www.bilibili.com/video/BV1bc411X78v/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+
+### answer 
+1. you told me to bring you everything i have on the Baily Case this morning.
+2. Great. Leave it in my desk and i 'll get to it sometime this week.
+3. I was really hoping that we could go over it today.
+4. i was hopping to be out the door by now.
+5. i know that i said this wouldn't take up too much of your time
+6. But today's not the day.
+
