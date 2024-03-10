@@ -22,7 +22,7 @@ stay away from
 let's say
 for argument sake
 
-## 2/04 【艾米莉在巴黎】这样轻松看美剧，你的听力会好到很哇塞！ (Emily in Paris)
+## 02/04 【艾米莉在巴黎】这样轻松看美剧，你的听力会好到很哇塞！ (Emily in Paris)
 https://www.bilibili.com/video/BV1Bu4m1N7Uz/?spm_id_from=333.999.0.0&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 ### scenario one
   But then he said he felt like he put himself out there
