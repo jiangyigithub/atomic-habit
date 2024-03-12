@@ -194,3 +194,32 @@ https://www.bilibili.com/video/BV1bc411X78v/?spm_id_from=333.788&vd_source=0d7a6
 5. i know that i said this wouldn't take up too much of your time
 6. But today's not the day.
 
+
+## 3/12 【最强保姆级听力】美国女星最真实的闲聊，你能听懂多少？
+https://www.bilibili.com/video/BV18z4y1N776/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+### 盲听
+do you have down time you just shill?
+yes sometime i get ansy
+i love i love athing
+may i just lovfer
+yes that we do to
+
+### 答案
+1. do you have downtime that you just chill?
+2. yeah, sometimes. But i get a little antsy.
+3. i love dancing
+4. i definitely make time for like massages, and stuff like that.
+5. that's what you do to completely unwind?
+
+### 词汇难点
+1. downtime
+2. chill
+3. get a little antsy
+4. definitely
+5. make time for
+6. massges
+7. stuff like that
+8. completely
+9. unwind
+
+### 连读难点
