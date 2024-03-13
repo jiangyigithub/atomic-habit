@@ -223,3 +223,6 @@ yes that we do to
 9. unwind
 
 ### 连读难点
+
+## 3/13 【最牛保姆级听力】美国人在工作中必用的句子，你能听懂多少？
+https://www.bilibili.com/video/BV1ZX4y1s7WZ/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
