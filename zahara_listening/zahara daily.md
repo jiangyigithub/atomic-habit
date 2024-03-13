@@ -211,14 +211,21 @@ yes that we do to
 4. i definitely make time for like massages, and stuff like that.
 5. that's what you do to completely unwind?
 
+### 句子拆解
+1. do you have downtime |that you just chill?
+2. yeah, sometimes. But i get a little antsy.
+3. i love dancing
+4. i definitely | make time for |like massages, | and stuff like that.
+5. that's | what you do |to completely unwind?
+
 ### 词汇难点
 1. downtime
 2. chill
 3. get a little antsy
 4. definitely
 5. make time for
-6. massges
-7. stuff like that
+6. massages
+7. and stuff like that
 8. completely
 9. unwind
 
