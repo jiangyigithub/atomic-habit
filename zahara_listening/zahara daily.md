@@ -239,9 +239,9 @@ https://www.youtube.com/watch?v=SWbBsVcfuPA&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_l
 https://www.bilibili.com/video/BV1ZX4y1s7WZ/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 
 ### 答案
-1. Here's what we're gonna do about this.5
+1. Here's what we're gonna do about this?
 2. I'm gonna call the vendor and have this fixed today.
-3. I'll personally see the dresses before they are Fed Exed.
+3. I will personally see the dresses before they are Fed Exed.
 4. And I promise you they will be at your front door by 9am Friday.OK?
 5. I'm gonna refund you back all your money.
 6. Hey,hey... you check this one off your list.
