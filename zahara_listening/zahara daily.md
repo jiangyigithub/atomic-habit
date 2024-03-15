@@ -226,7 +226,18 @@ yes that we do to
 5. make time for
 6. massages
 7. and stuff like that
-8. completely
-9. unwind
+8. that's what
+9. completely
+10. unwind
+
 
 ### 连读难点
+
+## 3/15
+### 词汇难点
+here's what
+have sth. done
+refund
+I personally
+the front door
+promise
