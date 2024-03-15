@@ -238,13 +238,23 @@ yes that we do to
 https://www.youtube.com/watch?v=SWbBsVcfuPA&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_lfV8&index=15
 https://www.bilibili.com/video/BV1ZX4y1s7WZ/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 
+### 答案
+1. Here's what we're gonna do about this.5
+2. I'm gonna call the vendor and have this fixed today.
+3. I'll personally see the dresses before they are Fed Exed.
+4. And I promise you they will be at your front door by 9am Friday.OK?
+5. I'm gonna refund you back all your money.
+6. Hey,hey... you check this one off your list.
+7. OK? This is done.
+
 ### 词汇难点
 here's what
 have sth. done
-refund
-I personally
-front door
-promise
+I'm gonna
 vendor
+I personally
+I promise you
+front door
+refund
 check sth. off
 ### 连读难点
