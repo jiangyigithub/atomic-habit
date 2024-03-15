@@ -233,11 +233,18 @@ yes that we do to
 
 ### 连读难点
 
-## 3/15
+
+## 3/15 【最牛保姆级听力】美国人在工作中必用的句子，你能听懂多少？
+https://www.youtube.com/watch?v=SWbBsVcfuPA&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_lfV8&index=15
+https://www.bilibili.com/video/BV1ZX4y1s7WZ/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+
 ### 词汇难点
 here's what
 have sth. done
 refund
 I personally
-the front door
+front door
 promise
+vendor
+check sth. off
+### 连读难点
