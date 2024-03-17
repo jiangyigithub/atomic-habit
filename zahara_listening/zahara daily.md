@@ -243,10 +243,19 @@ https://www.bilibili.com/video/BV1ZX4y1s7WZ/?spm_id_from=333.788&vd_source=0d7a6
 2. I'm gonna call the vendor and have this fixed today.
 3. I will personally see the dresses before they are Fed Exed.
 4. And I promise you they will be at your front door by 9am Friday.OK?
-5. I'm gonna refund you back all your money.
+5. And I'm gonna refund you back all your money.
 6. Hey,hey... you check this one off your list.
 7. OK? This is done.
 
+### 断句
+1. Here's what we're gonna do about this?
+2. I'm gonna call the vendor and have this fixed today.
+3. I will personally see the dresses before they are Fed Exed.
+4. And I promise you| they will be |at your front door |by 9am Friday.OK?
+5. And I'm gonna refund you back all your money.
+6. Hey,hey... you check this one off your list.
+7. OK? This is done.
+   
 ### 词汇难点
 here's what
 have sth. done
@@ -258,3 +267,20 @@ front door
 refund
 check sth. off
 ### 连读难点
+
+## 03/17
+do you remeber you had, come up with you
+How
+- pose to do?
+give me a few days, i was reasonning my can
+- you really you can talk with this?
+trust to me. ok , free to can
+
+###
+1. you remember how you felt when you thought that Eli and I were
+   ganging up on you.
+2. How is he gonna feel if is seems like we are ganging up on him?
+3. so what to you propose we do?
+4. Give me a few days and i'll reason with him
+5. you really think you can talk him into this?
+6. Trust me. I'll get through to him.
