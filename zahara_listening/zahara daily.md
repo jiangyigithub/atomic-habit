@@ -301,5 +301,6 @@ https://www.bilibili.com/video/BV1sX4y1W7pA/?spm_id_from=333.788&vd_source=0d7a6
 3. Jules, i apologize if I overstepped in some way.
 4. No no no... you have done nothing wrong.
 5. Look.I have a lot going on and I'm a very private person.
-6. And at first,I don't know I thought maybe this wasn't gonna work.But I was wrong.
-7. Jules, no explanation necessary.
+6. And at first,I don't know...
+7. I thought maybe this wasn't gonna work.But I was wrong.
+8. Jules, no explanation necessary.
