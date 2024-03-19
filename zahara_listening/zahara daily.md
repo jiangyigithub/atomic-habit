@@ -296,3 +296,10 @@ get through
 
 ## 03/19【最强保姆级听力】美国人在工作中化解误会，你能听懂多少？
 https://www.bilibili.com/video/BV1sX4y1W7pA/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+1. you must think i'm demented.
+2. Not the word i would use.
+3. Jules, i apologize if I overstepped in some way.
+4. No no no... you have done nothing wrong.
+5. Look.I have a lot going on and I'm a very private person.
+6. And at first,I don't know I thought maybe this wasn't gonna work.But I was wrong.
+7. Jules, no explanation necessary.
