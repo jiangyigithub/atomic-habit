@@ -269,7 +269,8 @@ refund
 check sth. off
 ### 连读难点
 
-## 03/17
+## 03/17 【最强保姆级听力】美国人最日常的聊天语速，你能听懂多少？
+https://www.bilibili.com/video/BV1bH4y1D7g9/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
 do you remeber you had, come up with you
 How
 - pose to do?
@@ -277,11 +278,21 @@ give me a few days, i was reasonning my can
 - you really you can talk with this?
 trust to me. ok , free to can
 
-###
+### 答案
 1. you remember how you felt when you thought that Eli and I were
    ganging up on you.
 2. How is he gonna feel if is seems like we are ganging up on him?
-3. so what to you propose we do?
+3. so what do you propose we do?
 4. Give me a few days and i'll reason with him
 5. you really think you can talk him into this?
 6. Trust me. I'll get through to him.
+
+###  词组
+gang up with
+reason with
+talk sb. into this.
+get through
+
+
+## 03/19【最强保姆级听力】美国人在工作中化解误会，你能听懂多少？
+https://www.bilibili.com/video/BV1sX4y1W7pA/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
