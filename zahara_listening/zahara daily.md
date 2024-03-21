@@ -304,3 +304,9 @@ https://www.bilibili.com/video/BV1sX4y1W7pA/?spm_id_from=333.788&vd_source=0d7a6
 6. And at first,I don't know...
 7. I thought maybe this wasn't gonna work.But I was wrong.
 8. Jules, no explanation necessary.
+
+### 词组
+in some way
+have a lot going on
+private person
+no explanation necessary
