@@ -314,7 +314,7 @@ no explanation necessary
 
 ## 03/22 【保姆级听力训练】两个美国女生真实聊天的语速，你能听懂多少？
 nice gallary, how getting
-shopping by neibourhood
+shopping by neiborhood
 keep
 openning
 hitting on you
