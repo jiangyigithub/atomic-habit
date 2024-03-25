@@ -310,3 +310,28 @@ in some way
 have a lot going on
 private person
 no explanation necessary
+
+## 03/21 保姆级听力训练】两个美国女生真实聊天的语速，你能听懂多少？
+https://www.bilibili.com/video/BV1ch411w7VN/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+
+1. Nice gallery. How did we get invited to this?
+2. I met a girl shopping for flowers in my neighborhood.
+3. She saved me form buying bad roses.
+4. told me about some cute brunch spots
+5. and ... invited me to this opening.
+6. Oh my god! do you think she was hitting on you?
+7. What? Not until now!
+   
+### 词组
+get invited
+brunch spots
+hit on
+
+### 句子拆解
+Nice gallery.| How did we| get invited |to this?
+I met a girl| shopping for flowers in| my neighborhood.
+She saved me| form buying bad roses.
+told me about| some cute |brunch spots
+and ... invited me |to this opening.
+Oh my god!| do you think |she was hitting on you?
+What? Not until now!
