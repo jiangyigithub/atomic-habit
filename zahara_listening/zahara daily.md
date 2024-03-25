@@ -307,13 +307,21 @@ https://www.bilibili.com/video/BV1sX4y1W7pA/?spm_id_from=333.788&vd_source=0d7a6
 
 ### 词组
 in some way
+overstep
 have a lot going on
 private person
 no explanation necessary
 
 ## 03/21 保姆级听力训练】两个美国女生真实聊天的语速，你能听懂多少？
 https://www.bilibili.com/video/BV1ch411w7VN/?spm_id_from=333.788&vd_source=0d7a659e0c3fd86bc699b9150fa1cbbb
+nice gallary, how getting
+shopping by neighbourhood
+keep
+openning
+hitting on you
+not until now
 
+## 答案
 1. Nice gallery. How did we get invited to this?
 2. I met a girl shopping for flowers in my neighborhood.
 3. She saved me form buying bad roses.
