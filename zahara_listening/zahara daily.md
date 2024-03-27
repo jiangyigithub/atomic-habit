@@ -343,3 +343,34 @@ told me about| some cute |brunch spots
 and ... invited me |to this opening.
 Oh my god!| do you think |she was hitting on you?
 What? | Not until now!
+
+## 03/27
+### 
+for me, i honstly like perporsly go a eat alone
+in kind of my absirun by  myself
+i think the biggest thing is sirun yourself for south.
+and being able to work though the thing you  come up
+how the 
+you know communication around through
+yeah,to be still
+ exactly to learn to be still
+ 1. for me i honestly, i'll like purposely go to eat alone.
+ 2. and kind of on my own and just surrounded by myself.
+ 3. And i think the big thing is,surrounding yourself with your own thoughts.
+ 4. and being able to work through the thing that come up
+ 5. when you don't have the,you know, influx of constant communication around you.
+ 6. yeah,to be still
+ 7. exactly, to learn to be still.
+   
+### 词组
+purposely
+kind of
+on my own
+be surround by
+the big thing
+work through
+come up
+the influx of
+constant communication
+
+   
