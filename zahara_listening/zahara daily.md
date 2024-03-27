@@ -342,4 +342,4 @@ She saved me| form buying bad roses.
 told me about| some cute |brunch spots
 and ... invited me |to this opening.
 Oh my god!| do you think |she was hitting on you?
-What? Not until now!
+What? | Not until now!

@@ -1,2 +1,3 @@
 seat belts
 effects
+spots
