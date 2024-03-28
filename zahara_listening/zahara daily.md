@@ -288,7 +288,7 @@ trust to me. ok , free to can
 6. Trust me. I'll get through to him.
 
 ###  词组
-gang up with
+gang up on
 reason with
 talk sb. into this.
 get through
