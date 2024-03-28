@@ -354,13 +354,15 @@ how the
 you know communication around through
 yeah,to be still
  exactly to learn to be still
- 1. for me i honestly, i'll like purposely go to eat alone.
- 2. and kind of on my own and just surrounded by myself.
- 3. And i think the big thing is,surrounding yourself with your own thoughts.
- 4. and being able to work through the thing that come up
- 5. when you don't have the,you know, influx of constant communication around you.
- 6. yeah,to be still
- 7. exactly, to learn to be still.
+
+### 答案
+1. for me i honestly, i'll like purposely go to eat alone.
+2. and kind of on my own and just surrounded by myself.
+3. And i think the big thing is,surrounding yourself with your own thoughts.
+4. and being able to work through the thing that come up
+5. when you don't have the,you know, influx of constant communication around you.
+6. yeah,to be still
+7. exactly, to learn to be still.
    
 ### 词组
 purposely
