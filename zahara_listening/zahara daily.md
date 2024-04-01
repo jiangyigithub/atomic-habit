@@ -375,7 +375,8 @@ come up
 the influx of
 constant communication
 
-## 04/01
-###
+## 04/01 【保姆级听力训练】美国人最真实日常的对话，你能听懂多少？
+https://www.youtube.com/watch?v=iiK9GOYmLVs&list=PL35TJ0P4r10BovDRxpcpNulFZG9q_lfV8&index=5
+### 
 
    
